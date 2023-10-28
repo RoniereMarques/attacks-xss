@@ -1,0 +1,2 @@
+> [!WARNING]  
+> O site é apenas exemplos que hackers usam para fazer crimes é dar golpes cibernéticos. Não faça isso pós é ilegal cometer isso em sites de outros pessoas nem no seu. Até porque é muito dificil achar sites sem segurança contra isso.
